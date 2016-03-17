@@ -7,7 +7,7 @@ In random teams of 4-6 people, participants were tasked with building a spoof we
 
 #### Our Team - The Minnows
 
-Team Members: [Aaron Frichtl](https://www.linkedin.com/in/aaronfrichtl), Ricky Mare, Talisa Shevavesh and Michael Allen
+Team Members: [Aaron Frichtl](https://www.linkedin.com/in/aaronfrichtl), Ricky Mare, Talisa Shevavesh and [Michael Allen](https://www.linkedin.com/in/mrmichaelgallen)
 
 #### Team Strategy
 
